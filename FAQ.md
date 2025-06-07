@@ -17,3 +17,14 @@
  that make your tail wag.
 
  When you're done. click "Save Changes" to show the world.
+
+ ## Photos are nice adn all, but I don't see very well, How can
+ I smell the other dogs?
+
+ We regret that we are unable to offer our customers smell-o-
+ vison at this time.
+
+ As soon as muman technology catches up to dog noses, we'll be
+ sure to add a scent feature to the app.
+ In the meantime, sye not meet up ath the dog park to ge a whiff
+ of your new friend?
